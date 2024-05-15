@@ -1,12 +1,12 @@
-Dots on the landscape
-Guiding lost souls home at last
-Land of the dots shines
-
-Silent sanctuary
-Where chaos turns to order
-In the land of dots
-
-My mistakes await
-In the land of dots I'll find
-A chance to begin
+Dots on the landscape<br>
+Guiding lost souls home at last<br>
+Land of the dots shines<br>
+<br>
+Silent sanctuary<br>
+Where chaos turns to order<br>
+In the land of dots<br>
+<br>
+My mistakes await<br>
+In the land of dots I'll find<br>
+A chance to begin<br>
 
