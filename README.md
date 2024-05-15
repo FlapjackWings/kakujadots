@@ -1,7 +1,11 @@
-Land of the dots
+Dots on the landscape
+Guiding lost souls home at last
+Land of the dots shines
 
-The place dots find their way back to
+Silent sanctuary
+Where chaos turns to order
+In the land of dots
 
-A safe haven away from me 
-
-For I shall break linux again no dount
+My mistakes await
+In the land of dots I'll find
+A chance to begin
